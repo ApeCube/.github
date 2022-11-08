@@ -1,4 +1,4 @@
-## Welcome to Tharky Arts (Subject to change)
+## Welcome to I give up collective.
 
 <!--
 
